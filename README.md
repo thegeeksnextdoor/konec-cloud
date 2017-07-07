@@ -1,1 +1,0 @@
-# konec-cloud
